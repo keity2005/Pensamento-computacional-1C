@@ -17,7 +17,7 @@ https://www.pensador.com/charles_chaplin_poemas_sobre_a_vida/
 
 *****Sobre as poçoes da felicidade*****
 
-Localizada no coração da cidade as poçoes da felicidade traz para o mercado o que há de melhorar a vida do ser humano. Fundada em 2022, a loja de poçoes já éum grande sucesso na cidade e conquista novos clientes a cada dia.
+Localizada no coração da cidade as poçoes da felicidade traz para o mercado o que há de melhorar a vida do ser humano. Fundada em 2022, a loja de poçoes já é um grande sucesso na cidade e conquista novos clientes a cada dia.
 
 Nossa missão é: "Proporcionar fazer as pessoas feliz".
 
